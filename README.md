@@ -1,1 +1,1 @@
-# Azubi-Africa-
+# Azubi-Africa
